@@ -8,3 +8,5 @@ Deadpool debütierte im Comicheft New Mutants #98 (1991) von Fabian Nicieza und 
 * Sarkastischer Antiheld
 * Durchbricht häufig die Vierte Wand
 * Kommentiert die überzeichneten Geschehnisse ironisch
+
+> Whatever they did to me made me totally indestructible... and completely unfuckable.
