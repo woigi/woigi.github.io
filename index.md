@@ -10,3 +10,5 @@ Deadpool debütierte im Comicheft New Mutants #98 (1991) von Fabian Nicieza und 
 * Kommentiert die überzeichneten Geschehnisse ironisch
 
 > Whatever they did to me made me totally indestructible... and completely unfuckable.
+
+<img src="https://www.pngarts.com/files/1/Deadpool-Free-PNG-Image.png">
